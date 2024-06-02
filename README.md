@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on fun projects!
 - 📫 How to reach me:
   - Email: [tomasgalle2002@gmail.com]
-  - Telegram: [@Taykuuu]
-  - Discord: [tygoyaki]
+  - Telegram: [https://t.me/Taykuuu]
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I used to be a figure ice skater.
